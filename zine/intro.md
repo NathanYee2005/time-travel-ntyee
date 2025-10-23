@@ -6,4 +6,4 @@ They allow you to travel through time so easily.
 
 **I certainly believe that time travel was best explained in "Back to the Future".**
 
-Now there are some other movies that do it well Avgengers Endgame Time Machine and Terminator
+Now, there are some other movies that do it well: "Avgengers Endgame", "Time Machine", and "Terminator".
